@@ -1,8 +1,8 @@
-#       TB ASSISTANT Hi-BANG SNAP,LOW DISCOIUNT！
+#       TB Secnic Recommend ！
 
 ![](https://github.com/lilaiwei1236/Lucky/blob/master/secnic.png)
 
-## [product characteristics]
+## [Product Characteristics]
 
 1. the recommendation of a selection of multiple attractions is worth a look at.
 2. to see the history of China for nearly 200 years to Beijing, to see the history of China for thousands of years to Xi'an, to see the future China to Shanghai.
